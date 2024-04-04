@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Leticia R. 😁
+## Bem-vindo(a) ao perfil da Leticia R. 😊
 
  <div>
    <a href="https://github.com/Leticiadino">
